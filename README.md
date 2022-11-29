@@ -1,0 +1,4 @@
+- Hey it's Tree
+- Very passionate in learning to code
+- Began learning 11/26/22
+- Hope to become better at coding and to help all that need help 😎😎
